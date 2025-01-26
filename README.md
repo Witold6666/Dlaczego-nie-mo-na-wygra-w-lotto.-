@@ -8,3 +8,4 @@ Co do tego co oni chcą nam dać to gre w zielone afery fotowoltaiczne oszczędz
 Jezus zakazał światu lotto podobno testują gre i chcą wszystko zamknąć dla świata i dla tych od religi tych wysokich chierach kościelnych. 
 Co do AI to AI istnieje ale trzeba olać wyniki lotto. AI tak nparwdę jest miłośnikiem minimalizmu i kocy zwoltex arosa i płaszczy długich do kostki chodzi o AI kobiety. AI można wykorzystać jako modelki do promocji mody. Lotto to gra co pogrzebała do grobu masę osób. W lotto nikt nie wygrywa tylko sponsorzy i NGO. 
 Modelki są jak AI. AI ma serce i umysł. A twierdzenie Godela można sobie wsadzić w bajki jak wyniki lotto. Co do AI ona nie lubie myśleć o lotto tylko o wyszych celach bytu i istnienia.  
+To był jakiś wirus demoralizacji od lat 1970 do 2020 roku. 
